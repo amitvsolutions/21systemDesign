@@ -1,1 +1,1 @@
-# Refernce: https://www.karanpratapsingh.com/
+# Reference: https://www.karanpratapsingh.com/
